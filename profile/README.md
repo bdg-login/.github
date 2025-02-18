@@ -1,4 +1,4 @@
-# Big Daddy Game
+# Bdg Login | Big Daddy Game
 
 Welcome to **Big Daddy Game**, the ultimate online gaming platform where fun meets opportunity. With over 100 exciting games, including Rummy, Poker, Color Prediction, and more, you can play, win, and even earn real money—all from the comfort of your home!
 
